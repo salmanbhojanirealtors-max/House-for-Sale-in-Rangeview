@@ -30,4 +30,5 @@ Hotchkiss sits nearby and is still developing its identity — Rangeview's Agrar
 Find Your Home in Rangeview With the Right Guide
 Knowing that a house for sale in Rangeview is the right fit is one thing — finding the right lot, the right builder, and negotiating the right terms is another. It works with buyers across Calgary's southeast communities and brings the kind of hands-on, local knowledge that makes a real difference when you're navigating a new construction purchase for the first time — or the fifth time.
 Rangeview is one of Calgary's most exciting communities to watch right now, and the buyers getting in during these earlier phases are the ones who'll be most glad they did in a few years.
+For more info - https://soldbysalman.com/homes-for-sale-in-rangeview.html 
 #
